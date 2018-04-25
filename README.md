@@ -1,2 +1,2 @@
-# 201424508
-# Suhyeong.Lee
+201424508
+Suhyeong.Lee
